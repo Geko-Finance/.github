@@ -1,1 +1,1 @@
-# Hey we are testing live on the GF community call !!
+# Hey, we are testing live on the GF community call!!
